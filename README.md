@@ -1,4 +1,4 @@
 # Login Form Input Google
 
-## Unete a Youtube ↙️
-[Bedimcode](https://www.youtube.com/c/Bedimcode)
+## Join Youtube ↙️
+[Bedimcode](https://www.youtube.com/@Bedimcode)
